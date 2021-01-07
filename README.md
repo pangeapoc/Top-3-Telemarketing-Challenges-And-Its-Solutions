@@ -1,0 +1,2 @@
+# Top-3-Telemarketing-Challenges-And-Its-Solutions
+The telemarketing industry is one of the most effective and powerful services that provide a platform for client communication which contributes to the economy of the company. Even emergency of advanced technology or new technology comes into the market still there is no alternative option or complete replacement for the effectiveness of direct communication. 
